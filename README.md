@@ -1,0 +1,1 @@
+Programmer who is passionate about game development and computer graphics with an interest in using procedural and ML techniques for content generation. Other interests/hobbies include astronomy, science fiction, military history, filmmaking and electronic music production.
